@@ -1,7 +1,7 @@
 # 💫About Me :
 Live and work as a career changer.
 I don't see myself as a typical nerd.
-Tattooed black metal lover.
+Tattooed, bearded black metal fan who loves photography.
 Working for a marketing agency as a web designer and project manager.
 
 ## 🌐Socials
