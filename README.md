@@ -2,7 +2,7 @@
 Live and work as a career changer.
 I don't see myself as a typical nerd.
 Tattooed, bearded black metal fan who loves photography.
-Working for a marketing agency as a web designer and project manager.
+Working in a marketing agency as a web designer and project manager.
 
 ## 🌐Socials
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/lordcanis) 
