@@ -5,6 +5,6 @@ Tattooed, bearded black metal fan who loves webdesign, ux and photography.
 Working in a marketing agency as a web designer and project manager.
 
 ## Socials
-[!Mastodon](https://mastodon.social/@LordCanis)
+[Mastodon](https://mastodon.social/@LordCanis)
 
-[!Pixelfed](https://pixelfed.de/LordCanis)
+[Pixelfed](https://pixelfed.de/LordCanis)
